@@ -19,6 +19,9 @@
   usually　𝐴𝐹𝐾　or　off　tab　,　please　𝑊2𝐼　or　i　wont　see　it　!
 </p>
 <p align="center">
+  IM!!!!! the no1 yim siwan, lee dongwook and wi ha-joon lover.. yes Heh. :)..
+</p>
+<p align="center">
   easy 2 read version : https://rentry.co/8yas4s5e
 </p>
 <br>
