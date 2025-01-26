@@ -1,5 +1,5 @@
 <p align="right">
-" But how about his loneliness? He gets it from his mom , "
+❝　𝑁o　𝒎e　𝒎ires　𝒄on 　𝒆sos　𝒐jos　,　❞
 </p>
 <br>
 <br>
@@ -7,21 +7,24 @@
   <img src="https://i.ibb.co/0s7xgKp/Untitled33-20250126110603.png" alt="hi">
 </p>
 <p align="center">
-  Archie or Kay or Ji-Yeong, 15yo. DID system, tkn!
+  𝐴𝙧𝙘𝙝𝙞𝙚　or　𝐾𝙖𝙮　or　𝐽i　-　𝑌eong　,　15yo　.　DID　system　,　tkn　!
 </p>
 <p align="center">
-  Lee Myung-Gi, K / King, Hwang Jun-Ho and Seo Moon-Jo IRL
+  𝐿𝙚𝙚　𝑀𝙮𝙪𝙣𝙜　-　𝐺𝙞　,　𝐾　/　𝐾𝙞𝙣𝙜　,　𝐻𝙬𝙖𝙣𝙜　𝐽𝙪𝙣　-　𝐻𝙤　and　𝑆𝙚𝙤　𝑀𝙤𝙤𝙣　-　𝐽𝙤　IRL
 </p>
 <p align="center">
-  cuddles & hides are welcome, i have touch comf !
+  𝐶uddles　&&　𝐻ides　are　welcome　,　i　have　𝑇ouch　𝐶omf　!
 </p>
 <p align="center">
-  usually afk or off tab, please whisp2int or i wont see it!
+  usually　𝐴𝐹𝐾　or　off　tab　,　please　𝑊2𝐼　or　i　wont　see　it　!
+</p>
+<p align="center">
+  easy 2 read version : https://rentry.co/e2rarchie
 </p>
 <br>
 <br>
 <p align="left">
-  " A hundred dollars for his haircut, but a smile from God . "
+  ❝　𝑀e　𝒅eslumbras　,　𝑀e 𝒅errumbas　.　❞
 </p>
 <br>
 <br>
