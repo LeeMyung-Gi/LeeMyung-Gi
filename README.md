@@ -7,7 +7,7 @@
   <img src="https://i.ibb.co/0s7xgKp/Untitled33-20250126110603.png" alt="hi">
 </p>
 <p align="center">
-  Archie or Kay, 15yo. DID system, tkn!
+  Archie or Kay or Ji-Yeong, 15yo. DID system, tkn!
 </p>
 <p align="center">
   Lee Myung-Gi, K / King, Hwang Jun-Ho and Seo Moon-Jo IRL
