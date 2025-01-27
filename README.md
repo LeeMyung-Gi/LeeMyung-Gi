@@ -32,8 +32,8 @@
 <br>
 <br>
 <p align="center">
-  <img src="https://i.ibb.co/MkH6Fm0/Screenshot-2025-01-26-11-22-15-AM.png" alt="hi"
+  <img src="https://i.ibb.co/zPkV4D9/Screenshot-2025-01-27-4-30-27-AM.png" alt="hi"
 </p>
 <p align="center">
-  this was really hard i hope you all die im joking ily oomfs
+  honorable mention!
 </p>
