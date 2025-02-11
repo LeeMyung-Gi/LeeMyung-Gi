@@ -32,8 +32,8 @@
 <br>
 <br>
 <p align="center">
-  <img src="https://i.ibb.co/3YT7dyxQ/Screenshot-2025-02-11-2-23-31-AM.png" alt="hi">
+  <img src="https://i.pinimg.com/736x/92/3c/90/923c90a5758066ce1da978a5f1311cac.jpg" alt="hi">
 </p>
 <p align="center">
-  honorable mention!
+  I love yaoi!
 </p>
