@@ -7,7 +7,7 @@
   <img src="https://i.ibb.co/0s7xgKp/Untitled33-20250126110603.png" alt="hi">
 </p>
 <p align="center">
-  𝐴𝙧𝙘𝙝𝙞𝙚　or　𝐾𝙖𝙮　or　𝐽i　-　𝑌eong　,　15yo　.　DID　system　,　tkn　!
+  𝐴𝙧𝙘𝙝𝙞𝙚　or　𝐾𝙖𝙮　or　𝐽i　-　𝑌eong　,　16yo　.　DID　system　,　tkn　!
 </p>
 <p align="center">
   𝐿𝙚𝙚　𝑀𝙮𝙪𝙣𝙜　-　𝐺𝙞　,　𝐾　/　𝐾𝙞𝙣𝙜　,　𝐻𝙬𝙖𝙣𝙜　𝐽𝙪𝙣　-　𝐻𝙤　and　𝑆𝙚𝙤　𝑀𝙤𝙤𝙣　-　𝐽𝙤　IRL
