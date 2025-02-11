@@ -32,7 +32,7 @@
 <br>
 <br>
 <p align="center">
-  <img src="https://i.ibb.co/3YT7dyxQ/Screenshot-2025-02-11-2-23-31-AM.png" alt="hi"
+  <img src="https://i.ibb.co/3YT7dyxQ/Screenshot-2025-02-11-2-23-31-AM.png" alt="hi">
 </p>
 <p align="center">
   honorable mention!
